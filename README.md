@@ -1,7 +1,1 @@
-ᅠᅠ⌓⌓
-
-ᅠ∘⁠˚⁠˳⁠°💊ᅠ⑅
-ᅠBillᅠ Cipher ᅠIRL
-𑙒entpᅠᅠ𓏼ᅠᅠmirrorᅠprnzᅠᅠ౿
-
-ᅠᅠ15ᅠ᧓ᅠᅠnoᅠdniᅠᅠ𓂅ᅠᅠtr𑙒ᅠᅠ𝜚ᅠᅠenbyᅠlesboyᅠᅠ♫ヽ(*´＾｀)ﾉ∘⁠˚⁠˳⁠°💊
+Billᅠ Cipher ᅠIRLᅠ𑙒ᅠᅠentpᅠᅠ𓏼ᅠᅠmirrorᅠprnzᅠᅠ౿ᅠ15ᅠ᧓ᅠᅠnoᅠdniᅠᅠ𓂅ᅠᅠtr𑙒ᅠᅠ𝜚ᅠᅠenbyᅠlesboyᅠᅠ♫ヽ(*´＾｀)ﾉ∘⁠˚⁠˳⁠°💊
